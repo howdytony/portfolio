@@ -1,2 +1,2 @@
-# portfolio
-user experience design and illustration 
+# Anthony Sudol
+is a User Experience Designer and Illustrator living in Chicago, IL. 
